@@ -1,4 +1,4 @@
-# 
+# Professionnel breakout trading bot flux de travail for Mac OS | VIP breakout trading bot flux de travail for PC Windows. Featuring pools de liquidité DEX and trading de contrats à terme — optimized for maximum performance.
 
 
 
